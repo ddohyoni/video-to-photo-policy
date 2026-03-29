@@ -11,7 +11,7 @@ Thank you for using **Video to Photo**! If you need help or have feedback, we're
 
 For questions, bug reports, or feature requests, please reach out via email:
 
-**Email:** [feedback@videotophoto.app](mailto:feedback@videotophoto.app)
+**Email:** [ysg8918@icloud.com](mailto:ysg8918@icloud.com)
 
 We typically respond within 48 hours.
 

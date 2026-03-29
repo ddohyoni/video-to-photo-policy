@@ -73,4 +73,4 @@ These Terms shall be governed by and construed in accordance with the laws of th
 
 If you have any questions about these Terms, please contact us at:
 
-**Email:** [feedback@videotophoto.app](mailto:feedback@videotophoto.app)
+**Email:** [ysg8918@icloud.com](mailto:ysg8918@icloud.com)
